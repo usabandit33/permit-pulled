@@ -10,3 +10,7 @@ Removed Denver Water Heater Experts and Beattie after delivery delays.
 Replacement outbound sent to:
 - info@simplysewersdenver.com
 - info@mydenverplumber.net
+
+## 2026-09-11
+Phone-led T2 (Day 3) to Bill Smith, Professional Plumbers Denver, Euro Plumbing.
+Replacement T2 due ~09-13/14.
